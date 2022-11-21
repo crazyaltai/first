@@ -1,0 +1,7 @@
+- 👋 Hello, Im Altay and from Samsun, Turkey
+- 👀 I’m interested in mobile and web development, robotics, energy techs and similar things.
+- 🌱 I’m currently learning mobile development and Java programming language.
+- 💞️ I’m looking to collaborate on mobile and web development.
+- 📫 You can reach me here: arifkamerkaraca@gmail.com
+- ♥ <-TAKE CARE->
+- <--- CrazyAltai is a ✨ special person ✨ --->
